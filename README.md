@@ -1,1 +1,0 @@
-# Aripallg.github.io
